@@ -1,2 +1,0 @@
-# skinsss
-nodesc
